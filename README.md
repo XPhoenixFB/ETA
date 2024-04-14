@@ -1,1 +1,1 @@
-# BAsicamente subiré las betas en este apartado
+# Básicamente subiré las betas en este apartado
